@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stevetvtk
-http://www.stevetv.tk heacing towards 4K IPTV
+http://www.stevetv.tk heading towards 4K IPTV
 - 👀 I’m interested in ...creating gatering top ressources
 - 🌱 I’m currently learning ...IPTV m3u Epg from everywhere.
 - 💞️ I’m looking to collaborate on ...IPTV m3u epg
